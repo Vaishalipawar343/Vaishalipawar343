@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Vaishali Pawar. 
+- 👀 I’m interested in developing some interested and useful things with my weapons and abilites. 
+- 🌱 I’m currently learning Artificial Intelligence and Data Science BE course. 
+- 💞️ I’m looking to collaborate on projects with honorables like Google, Microsoft, Meta. 
+- 📫 How to reach me? you can mail me on vaishupawar343@gmail.com . Let's grow our network. 
+- 😄 Pronouns: She / Her
+- ⚡ Fun fact: Be mad in it...
+- 🤝 Let's build some projects together. 
